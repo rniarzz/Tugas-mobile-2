@@ -10,6 +10,6 @@
 
 ## Hasil output
 
-https://github.com/rniarzz/Tugas-mobile-2/assets/115542704/d5df89fb-bd61-41cb-a2a8-049150cd96ab
+https://github.com/rniarzz/Tugas-mobile-2/assets/115542704/7fe70279-3010-4ed9-ae04-758f91721383
 
 ---
